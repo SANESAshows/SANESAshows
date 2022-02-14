@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SANESAshows
+- 👀 I’m interested in coding in my elective
+- 🌱 I’m currently learning how to code mor eadvanced
+- 💞️ I’m looking to collaborate with peers
+- 📫 How to reach me via email
